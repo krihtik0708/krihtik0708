@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @krihtik0708
+- 👋 Hi, I’m @krihtik.konsthala
 - 👀 I’m interested in AI 
 - 🌱 I’m currently learning articial intelligence 
 - 📫 How to reach me -kjkrithik2007@gmail.com
